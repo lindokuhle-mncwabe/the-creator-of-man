@@ -33,5 +33,43 @@ and there is no mention of angels participating in the creation of man.<br/><br/
 The Hebrew word for man (‘adam), is a generic term for both male and female.<br/><br/>
 
 So God created man in His own image, in the image of God he created him;<br/>
-male and female he created them.
+male and female he created them. Adam, whose name means "man", was the <br/>
+first human being. Created out of dust, he was made in the image of God.<br/>
+God created Eve as a helper for Adam, and together they enjoyed perfect<br/>
+fellowship with their Creator.<br/><br/>
+
+<b>The Fall of Man</b><br/>
+<i>Gen3:1</i><br/><br/>
+
+But Adam and Eve chose to disobey God,<br/>
+which brought sin and death into the world. Adam and Eve had children<br/>
+after their fallen likeness. Because of their sin, all humans are now<br/>
+born sinners and will someday die.<br/><br/>
+
+<b>The Problem</b></br>
+<i>Joh3:16, 1Cor15:22</i><br/><br/>
+
+For as in Adam all die, so also in Christ all shall be made alive.<br/>
+Now for every sin committed there must be a payment of death.<br/>
+Not just the death of flesh, but the death of a soul that lived<br/>
+in the flesh. As in Adam all man have sinned, then all man must<br/>
+have eternal death as a punishment for sin. No man born of Adam<br/>
+can die for sins of other that they may have eternal life.<br/>
+Only a son of man born of God has the power to die for all those<br/>
+who have sinned that they may have eternal life.<br/><br/>
+
+<b>The Word Became Flesh</b></br>
+<i>Joh3:16,Joh1:9-14</i><br/><br/>
+
+For God so loved the man and his children, whom He created,<br/>
+that He gave His only Son, that whoever believes in Him should<br/>
+not perish but have eternal life.<br/><br/>
+
+The Word which gives light to everyone, was coming into the world.<br/>
+His was in the world that was made through Him, yet the world<br/>
+did not recognise Him and His own people did not receive Him.<br/>
+But to all who receive Him, who believe in His name, He gave the<br/>
+right to become children of God, who are born, not of blood nor<br/>
+of the will of flesh nor of the will of man, but of God. And the<br/>
+Word became flesh and dwelt amoung us.
 
