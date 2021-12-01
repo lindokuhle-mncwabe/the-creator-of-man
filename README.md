@@ -1,1 +1,1 @@
-# the-creator-of-man
+# The Creator of Man
