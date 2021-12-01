@@ -59,7 +59,7 @@ Only a son of man born of God has the power to die for all those<br/>
 who have sinned that they may have eternal life.<br/><br/>
 
 <b>The Word Became Flesh</b></br>
-<i>Joh3:16,Joh1:9-14</i><br/><br/>
+<i>Joh3:16, Joh1:9-14</i><br/><br/>
 
 For God so loved the man and his children, whom He created,<br/>
 that He gave His only Son, that whoever believes in Him should<br/>
