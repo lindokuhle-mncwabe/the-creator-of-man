@@ -28,5 +28,10 @@ Many Christians believe that “let us” means God speaking to Himself.<br/>
 If so, this would be the first biblical mention of the “Trinity”.<br/><br/>
 
 Human beings are not made in the image of angels (sons of God),<br/>
-and there is no mention of angels participating in the creation of man.<br/>
-The Hebrew word for man (‘adam), is a generic term for both male and female.
+and there is no mention of angels participating in the creation of man.<br/><br/>
+
+The Hebrew word for man (‘adam), is a generic term for both male and female.<br/><br/>
+
+So God created man in His own image, in the image of God he created him;<br/>
+male and female he created them.
+
