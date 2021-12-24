@@ -21,7 +21,7 @@ By the power of the Word of God, all of space, all of time,<br/>
 all of matter in the universe were created.
 
 <b>The Man Created</b><br/>
-<i>Gen1:26, Gen 1:27</i><br/><br/>
+<i>Gen1:26-27</i><br/><br/>
 
 Then God said, “Let us make man in our image, after our likeness”.<br/>
 Many Christians believe that “let us” means God speaking to Himself.<br/>
