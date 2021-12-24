@@ -37,8 +37,8 @@ male and female he created them. Adam, whose name means "man", was the <br/>
 first human being. Adam was created out of dust and the breath of God, <br/>
 so became a living soul made in the image of God.<br/><brl/>
 The term "Image of God" refers to the nature that God intended humans to have.<br/>
-God created Adam with the ability to manifests His character in everything he did.<br/>
-So for a while Adam walked with God and everything he did was good and perfect.<br/><br/>
+God created Adam with only the ability to manifests His character in who he was and<br/>
+in everything he did. So for a while Adam was immortal, and walked with God, everything he did was good and perfect.<br/><br/>
 Now Adam was the only one of his kind, he did have anyone else to help him.<br/>
 God created Eve as a helper for Adam, and together they enjoyed perfect<br/>
 fellowship with their Creator.<br/><br/>
