@@ -36,7 +36,9 @@ So God created man in His own image, in the image of God he created him;<br/>
 male and female he created them. Adam, whose name means "man", was the <br/>
 first human being. Created out of dust, he was made in the image of God.<br/><brl/>
 The term "Image of God" refers to the nature that God intended humans to have.<br/>
-Man was created with the nature that manifests God in humans.<br/><br/> 
+God created Adam with the ability to manifests His character in everything he did.<br/>
+So for a while Adam walked with God and everything he did was good and perfect.<br/><br/>
+Now Adam was the only one of his kind, he did have anyone else to help him.<br/>
 God created Eve as a helper for Adam, and together they enjoyed perfect<br/>
 fellowship with their Creator.<br/><br/>
 
