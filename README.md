@@ -34,7 +34,9 @@ The Hebrew word for man (‘adam), is a generic term for both male and female.<b
 
 So God created man in His own image, in the image of God he created him;<br/>
 male and female he created them. Adam, whose name means "man", was the <br/>
-first human being. Created out of dust, he was made in the image of God.<br/>
+first human being. Created out of dust, he was made in the image of God.<br/><brl/>
+The term "Image of God" refers to the nature that God intended humans to have.<br/>
+Man was created with the nature that manifests God in humans.<br/><br/> 
 God created Eve as a helper for Adam, and together they enjoyed perfect<br/>
 fellowship with their Creator.<br/><br/>
 
