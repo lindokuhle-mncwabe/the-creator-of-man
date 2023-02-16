@@ -25,9 +25,7 @@ and things are created.<br/>
 *bese kudaleka loko akufunayo (kuvele kudaleke emoyeni)*<br/><br/>
 
 By the power of the Word of God, all of space, all of time,<br/>
-all of matter in the universe were created.<br/>
-*Ngamandla kaLizwi ekuNkulunkulu, wonk'ukhathi, sonke is'khathi,*<br/>
-*konke*<br/>
+all of matter in the universe were created.<br/><br/>
 
 (1) summary: *"Konke isikwaziyo, okubonakalayo nokungabonakali, okusemhlabeni*<br/>
 *nokusezulwini; kwadalwa uNkulunkulu.*<br/>
