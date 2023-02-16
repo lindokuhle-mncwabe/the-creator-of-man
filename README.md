@@ -84,7 +84,7 @@ can die for sins of other that they may have eternal life.<br/>
 Only a son of man born of God has the power to die for all those<br/>
 who have sinned that they may have eternal life.<br/><br/>
 
-(4) summary: *"Uvuzo wokona kwabo kwaba kukhulahlekelwa; injabulo,*<br/>
+(4) summary: *"Umvuzo wokona kwabo kwaba ukuhlekelwa; injabulo,*<br/>
 *inkazimulo nokuphila okuphakade. Mabebona ukuthi bahamba ze,*<br/>
 *base beba namahloni nokwesaba. Emvakwalokho uAdam nomkakhe basebeba"*<br/>
 *nabantwana ngomfanekiso wabo, ongenayo injabulo, ongenayo inkazimulo,*<br/>
