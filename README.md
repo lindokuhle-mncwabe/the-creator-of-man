@@ -19,8 +19,8 @@ which means that He created it out of nothing.<br/><br/>
 
 Everything that was created was created by the Word of God.<br/>
 God’s absolute power is seen in that He merely speaks,<br/>
-and things are created.<br/><br/>
-*Konke ukubonakalayo nokungabonakali kwavela ngoLizwi ekuNkulunkulu.*<br/>
+and things are created.<br/>
+*Konke okubonakalayo nokungabonakali kwavela ngoLizwi ekuNkulunkulu.*<br/>
 *Amandla kaNkulunkulu abonakala ngokuthi umane akhulume,*<br/>
 *bese kudaleka loko akufunayo (kuvele kudaleke emoyeni)*<br/><br/>
 
