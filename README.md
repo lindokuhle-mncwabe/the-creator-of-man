@@ -3,15 +3,11 @@
 <strong>The Beginning Created</strong><br/>
 <i>Gen1:1</i><br/><br/>
 
-Before time there was the Word, the Word was with God, and the Word was God. <br/>
-*Kudala kongakabikhona ngisho isikhathi; kwakukhona uLizwi, uLizwi wayekuNkulunkulu, uLizwi wayenguNkulunkulu* <br/><br/>
+Before time there was the Word, the Word was with God, and the Word was God. <br/> 
 
 In the beginning (time), God created the heavens (space) and the earth (matter). <br/>
 God put everything in order so that it might become His dwelling place,<br/>
 the place of His presence, displaying His glory.<br/>
-*Ekuqaleni (kwesikhathi), uNkulunkulu wadala izulu (ukhathi) nomhlaba (ukuthintekayo).*<br/>
-*uNkulunkulu wase enza ukuhleleka kukho konke akudalile, ukuze kube indawo yakhe yokuhlala,*<br/>
-*kube indawo lapho engatholakala khona, ekhombisa inkazimulo yakhe.*<br/><br/>
 
 Thus, “in the beginning” refers to the beginning of everything.<br/> 
 God created everything in the universe,<br/> 
@@ -20,16 +16,9 @@ which means that He created it out of nothing.<br/><br/>
 Everything that was created was created by the Word of God.<br/>
 God’s absolute power is seen in that He merely speaks,<br/>
 and things are created.<br/>
-*Konke okubonakalayo nokungabonakali kwavela ngoLizwi ekuNkulunkulu.*<br/>
-*Amandla kaNkulunkulu abonakala ngokuthi umane akhulume,*<br/>
-*bese kudaleka loko akufunayo (kuvele kudaleke emoyeni)*<br/><br/>
 
 By the power of the Word of God, all of space, all of time,<br/>
 all of matter in the universe were created.<br/><br/>
-
-(1) summary: *"Konke isikwaziyo, okubonakalayo nokungabonakali, okusemhlabeni*<br/>
-*nokusezulwini; kwadalwa uNkulunkulu.*<br/>
-*Konke kwadalwa uLizwi ekuNkulunkulu".*
 
 <b>The Man Created</b><br/>
 <i>Gen1:26-27</i><br/><br/>
@@ -55,9 +44,6 @@ Now Adam was the only one of his kind, he didn't have anyone else to help him.<b
 God created Eve as a helper for Adam, and together they enjoyed perfect<br/>
 fellowship with their Creator.<br/><br/>
 
-(2) summary: *"Isidalwa esingumuntu sadalwa uNkulunkulu ngomfanekiso wakhe,*<br/>
-*esidalela ukuthi sibenenjabulo, sembathe inkazimulo bese sibe nokuphila okuphakade."*
-
 <b>The Fall of Man</b><br/>
 <i>Gen3:1</i><br/><br/>
 
@@ -65,10 +51,6 @@ But Adam and Eve chose to disobey God,<br/>
 which brought sin and death into the world. Adam and Eve had children<br/>
 after their fallen likeness. Because of their sin, all humans are now<br/>
 born sinners and will someday die.<br/><br/>
-
-(3) summary: *"Isidalwa esinguAdam sathi sesinosizi waso*<br/>
-*engowesifazane; behamba ze bobabili kodwa bengenamahloni bengesabi, (ngoba bembathe inkazimulo)*<br/>
-*base bona ngokwenza okuphikisana nom'yalelo kaNkulunkulu."*
 
 <b>The Problem</b></br>
 <i>Joh3:16, 1Cor15:22</i><br/><br/>
@@ -81,12 +63,6 @@ have eternal death as a punishment for sin. No man born of Adam<br/>
 can die for sins of other that they may have eternal life.<br/>
 Only a son of man born of God has the power to die for all those<br/>
 who have sinned that they may have eternal life.<br/><br/>
-
-(4) summary: *"Umvuzo wokona kwabo kwaba ukuhlekelwa; injabulo,*<br/>
-*inkazimulo nokuphila okuphakade. Mabebona ukuthi bahamba ze,*<br/>
-*base beba namahloni nokwesaba. Emvakwalokho uAdam nomkakhe basebeba"*<br/>
-*nabantwana ngomfanekiso wabo, ongenayo injabulo, ongenayo inkazimulo,*<br/>
-*ongenako ukuphila ukuphade"*
 
 <b>The Word Became Flesh</b></br>
 <i>Joh3:16, Joh1:9-14</i><br/><br/>
